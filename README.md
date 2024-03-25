@@ -3,7 +3,7 @@
 ## Members
 
 * Leidy Julieth Cruz Cruz
-* Sandra Milena Fernandez Rosa 
+* Sandra Milena Fernandez Roa 
 * Oscar Giobani Clavijo Gutiérrez
 * Flavio Cesar Fonseca
 
